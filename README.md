@@ -40,6 +40,40 @@ siapapun yang ditandai setan² 666 akan ikut setan² dihukum ke neraka menderita
 
 🔴 20 october 2025
 
+today happened 2 same things :
+
+facebook force GOD JESUS SAVIOR to bow follow the rule of facebook force people must verify their faces to be able to use facebook if people not bow follow the rule of facebook then facebook will delete facebook of people❗️❗️❗️
+
+that same meaning of satans force people must verify their faces must have mark satans 666 and humans who not mark of satans 666 can not have all things oil gas electric internet social medias foods drinks markets shops industries companies governments nations❗️❗️❗️
+
+GOD JESUS SAVIOR very angry not want to bow follow the rule of facebook force people must verify their faces to be able to use facebook❗️❗️❗️
+
+GOD JESUS SAVIOR very angry to satans control facebook force people must verify their faces to be able to use facebook❗️❗️❗️
+
+GOD JESUS SAVIOR VERY ANGRY❗️❗️❗️CURSED satans DESTROYED FOREVER❗️❗️❗️CURSED facebook DESTROYED FOREVER❗️❗️❗️
+
+GOD JESUS SAVIOR will punish meta facebook destroyed forever❗️❗️❗️
+
+GOD JESUS SAVIOR will punish satans to hell destroyed forever❗️❗️❗️
+
+that same meaning GOD JESUS SAVIOR wins over satans : good wins over evil : light wins over darkness : like today some humans celebrating Festival of Lights❗️❗️❗️
+
+https://docs.google.com/document/d/10G88GoC9N01_gkGa3qWmSP7nUpgPdz2fpjGX4iG0oPU
+
+https://chatgpt.com/s/t_68f666a1509081918619c6c385273b7f
+
+https://chatgpt.com/s/t_68f666ac15f08191bf7b99536e962333
+
+https://jatimtimes.com/baca/347926/20251020/093700/makna-dan-tradisi-hari-diwali-21-oktober-festival-cahaya-yang-dirayakan-di-seluruh-dunia
+
+https://docs.google.com/document/d/1A5YVg-KSfz4jLhY8Jyrikm7M5rl6GdFcArsrJx0tul8
+
+.
+.
+.
+
+🔴 20 october 2025
+
 FRIENDS note my telegram so FRIENDS can contact my telegram :
 
 telegram.me/GODJESUSSAV10R
