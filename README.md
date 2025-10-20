@@ -64,6 +64,30 @@ jika tidak bisa pakai facebook jika tidak bisa pakai whatsapp jika tidak bisa pa
 
 🔴 20 october 2025
 
+this is my last messages for all my friends in whatsapp because i will not use all applications of meta facebook whatsapp instagram etc good bye until meet me in telegram :
+
+https://telegram.me/GODJESUSSAV10R
+
+https://telegram.me/GODJESUSSAVI0R
+
+https://telegram.me/GODJESUSSAV1OR
+
+...
+
+ini adalah terakhir kata² saya kepada semua teman² di whatsapp karena saya tidak akan pakai semua aplikasi² dari meta facebook whatsapp instagram dll selamat tinggal sampai jumpa saya di telegram :
+
+https://telegram.me/GODJESUSSAV10R
+
+https://telegram.me/GODJESUSSAVI0R
+
+https://telegram.me/GODJESUSSAV1OR
+
+.
+.
+.
+
+🔴 20 october 2025
+
 ❗️❗️❗️DELETE ALL FACEBOOK LINKS IN ALL MY SOCIAL MEDIAS❗️❗️❗️
 
 ❗️❗️❗️DELETE ALL FACEBOOK LINKS IN ALL MY SOCIAL MEDIAS❗️❗️❗️
@@ -113,8 +137,5 @@ jika tidak bisa pakai facebook jika tidak bisa pakai whatsapp jika tidak bisa pa
 ❗️❗️❗️NOT USE FACEBOOK ANYMORE FOREVER❗️❗️❗️
 
 https://docs.google.com/document/d/1A5YVg-KSfz4jLhY8Jyrikm7M5rl6GdFcArsrJx0tul8
-
-
-
 
 ![Image](https://github.com/user-attachments/assets/167c6108-c4b6-47e6-9c3f-f2b05e58fe72)
