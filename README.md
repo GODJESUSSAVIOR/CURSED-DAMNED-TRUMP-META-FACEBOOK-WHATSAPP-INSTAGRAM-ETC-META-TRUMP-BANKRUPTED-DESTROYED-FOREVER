@@ -1,6 +1,4 @@
-
-
-❗️❗️❗️CURSED DAMNED FACEBOOK BANKRUPTED DESTROYED SHUTDOWN CLOSED FOREVER❗️❗️❗️
+![Image](https://github.com/user-attachments/assets/167c6108-c4b6-47e6-9c3f-f2b05e58fe72)
 
 20 october 2025 utc+7 times 10 morning can not open facebook shutdown closed forever❗️❗️❗️
 
