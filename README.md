@@ -1,4 +1,4 @@
-🔵 20 october 2025
+🔴 20 october 2025
 
 GOD JESUS SAVIOR speak say :
 
@@ -38,7 +38,7 @@ siapapun yang ditandai setan² 666 akan ikut setan² dihukum ke neraka menderita
 .
 .
 
-🔵 20 october 2025
+🔴 20 october 2025
 
 FRIENDS note my telegram so FRIENDS can contact my telegram :
 
@@ -46,7 +46,7 @@ telegram.me/GODJESUSSAV10R
 telegram.me/GODJESUSSAVI0R
 telegram.me/GODJESUSSAV1OR
 
-if can not use facebook if can not use whatsapp if can not use instagram
+if can not use facebook if can not use whatsapp if can not use instagram if can not use all applications of meta
 
 ...
 
@@ -56,13 +56,13 @@ telegram.me/GODJESUSSAV10R
 telegram.me/GODJESUSSAVI0R
 telegram.me/GODJESUSSAV1OR
 
-jika tidak bisa facebook jika tidak bisa whatsapp jika tidak bisa instagram
+jika tidak bisa pakai facebook jika tidak bisa pakai whatsapp jika tidak bisa pakai instagram jika tidak bisa pakai semua aplikasi² dari meta
 
 .
 .
 .
 
-🔵 20 october 2025
+🔴 20 october 2025
 
 ❗️❗️❗️DELETE ALL FACEBOOK LINKS IN ALL MY SOCIAL MEDIAS❗️❗️❗️
 
@@ -82,7 +82,7 @@ jika tidak bisa facebook jika tidak bisa whatsapp jika tidak bisa instagram
 .
 .
 
-🔵 20 october 2025
+🔴 20 october 2025
 
 ❗️❗️❗️CURSED DAMNED FACEBOOK BANKRUPTED DESTROYED SHUTDOWN CLOSED FOREVER❗️❗️❗️
 
@@ -117,7 +117,4 @@ https://docs.google.com/document/d/1A5YVg-KSfz4jLhY8Jyrikm7M5rl6GdFcArsrJx0tul8
 
 
 
-
-
 ![Image](https://github.com/user-attachments/assets/167c6108-c4b6-47e6-9c3f-f2b05e58fe72)
-
