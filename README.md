@@ -38,6 +38,62 @@ siapapun yang ditandai setan² 666 akan ikut setan² dihukum ke neraka menderita
 .
 .
 
+❗️❗️❗️CURSED TO HELL SATANS WORST SOCIAL MEDIAS NO FREEDOM OF SPEECH❗️❗️❗️
+
+https://docs.google.com/document/d/1eNud_tjozVWk4wYVsoJ8_TNSCOkxhbvGPrmp5syGUq4
+
+❗️❗️❗️meta NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️facebook NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️whatsapp NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️instagram NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️threads NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️friendster NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️archive NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️mastodon NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️mediasproc NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️mediasprox NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️mediasofc NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️mediasofx NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️blogspot NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️mewe NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️quora NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️linkedin NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️substack NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️medium NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️wechat NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️gab NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️twitter NO FREEDOM OF SPEECH❗️❗️❗️
+
+❗️❗️❗️truthsocial NO FREEDOM OF SPEECH❗️❗️❗️
+
+https://docs.google.com/document/d/1eNud_tjozVWk4wYVsoJ8_TNSCOkxhbvGPrmp5syGUq4
+
+❗️❗️❗️CURSED TO HELL SATANS WORST SOCIAL MEDIAS NO FREEDOM OF SPEECH❗️❗️❗️
+
+.
+.
+.
+
 these informations are explanations of what happened in date 20 october 2025 :
 
 read chronology of what happened from bottom to top in date 20 october 2025 :
